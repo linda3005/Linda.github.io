@@ -1,4 +1,4 @@
-Asslamualaikum Wr. Wb.
+Assalamualaikum Wr. Wb.
 Nama saya Linda Damayanti, kelahiran Bandung 30 Mei 2001..
 
 ## KESAN
