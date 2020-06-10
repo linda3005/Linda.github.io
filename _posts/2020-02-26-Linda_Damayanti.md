@@ -13,6 +13,6 @@ Tips dan trik dari saya selama belajar matkul ini ialah, bawa rileks, bawa happy
 ## PELAJARAN HIDUP SELAMA MEMPELAJARI MATKUL PROYEK
 SABAR....SABar....Sabar....sabar.... itu aja sih. Selama pelajaran dan selama ini menjadi dapat membagi waktu untuk mengerjakan tugas-tugas yang di berikan selama kuliah semester 2 ini.
 
-#TERIMAKASIH
+# TERIMAKASIH
 Terimakasih kepada Bapak dan Ibu dosen yang telah memberikan saya tugas yang membuat saya dapat membagi waktu ini
 Terimakasih juga kepada rekan - rekan kelompok projek 'Fantastic Five'
